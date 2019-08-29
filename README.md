@@ -13,7 +13,3 @@ Next level try-hard glossier quinoa mixtape lumbersexual poke. Synth normcore in
 Iceland man braid gluten-free, taxidermy adaptogen franzen direct trade enamel pin heirloom activated charcoal irony microdosing deep v meditation. Meggings freegan artisan vice banjo letterpress ennui. Mlkshk actually four dollar toast cold-pressed bespoke. Retro cloud bread letterpress enamel pin kickstarter organic iPhone, blog bicycle rights air plant etsy roof party tumeric put a bird on it.
 
 Taiyaki mixtape bitters, taxidermy occupy master cleanse poke direct trade prism. Seitan forage locavore listicle direct trade portland skateboard celiac kale chips hashtag. Gentrify migas thundercats, neutra echo park quinoa iceland tbh. Celiac retro man braid, waistcoat vaporware blue bottle williamsburg thundercats. Pop-up godard art party twee whatever paleo four loko sustainable mixtape brunch small batch 3 wolf moon letterpress. Fanny pack truffaut neutra drinking vinegar yr wolf coloring book fashion axe tousled seitan photo booth glossier kombucha knausgaard schlitz. Etsy pour-over lo-fi health goth poke live-edge vegan affogato.
-
-Oh. You need a little dummy text for your mockup? How quaint.
-
-I bet you’re still using Bootstrap too…
